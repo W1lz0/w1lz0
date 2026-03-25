@@ -44,7 +44,11 @@ $\small\color{#6b73db}{\textsf{my name is will, eric or azi(raphale) mainly vary
 
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
-$\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
+$\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it!}}$
+
+$\small\color{#decda0}{\textsf{And just so you know, this the account I just user to follow people my main is @fourthdoctor or @mobiusMmobius}}$
+
+
 
 
 
